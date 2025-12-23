@@ -1,7 +1,7 @@
 
 
 <div align="center">
-<h6 align="center"> ic : MY YUMESHIP COMM CHAT <33 </h6> 
+<h6 align="center"> ic : ren so me , i love him dude </h6> 
   
 ![](https://komarev.com/ghpvc/?username=angelspup)
 
